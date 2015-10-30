@@ -63,4 +63,8 @@ MAN: Okay, I've got that. Thanks very much.
 WOMAN: Look forward to seeing you ...  
 
 ### SECTION 2  
+ANDREW: Now we go to Jane who is going to tell us about what's happening in town this weekend.  
+JANE: Right, thanks Andrew, and now what's new, and do we really need yet another sports shop in Bradcaster? Well, most of you probably know Sports World - **the branch of a Danish sports goods company** that opened a few years ago - it's attracted a lot of custom, and so the company has now decided to open another branch in the area. It's going to be in the shopping center to **the west of Bradcaster.** so that will be good news for all of you who've found the original shop in ther north of the town hard to get to.  
+I was invited to a special preview and I can promise you, this is the ultimate in sports retailing. The whole place has been given a new minimalist look with the company's signature colours of black and red.  
+**The first three floors have a huge range of sports clothing** as well as equipment, and on the top floor there's a cafe and a book and DVD section. You'll find all the well-known names as well as some less well-known ones. If they haven't got exactly what you want in stock they **promise to get it for you in ten days.** Unlike the other store, where it can take up to fourteen days. They cover all the major sports, including football, tennis and swimming, but **they particularly focus on running.** and they claim to have the widest range of equipment in the country. As well as that, a whole section of **the third floor is devoted to sports bags.** including the latest designs form the States - if you can't find what you want here, it doesn't exist!  
 
