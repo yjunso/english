@@ -73,5 +73,5 @@ One of the special opening offers is a fitness test - a complete review of your 
   
 ### SECTION 3  
 TEACHERS: Before we start, Spiros and Hiroko, thanks for coming in today to talk about your recent study experiences and congratulations to you both in doing so well in your first semester exams! I'd like to discuss with you the value of the English for Academic Purposes course you did here last year before starting your university course. Spiros, if I coud start with you, what parts of the programme have now proved to be particularly valuable to you?  
-SPIROS: 
+SPIROS: I think that having to do a semester presentation really 
 
