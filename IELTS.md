@@ -72,5 +72,6 @@ Then there will be a whole range of special attractions all weekend. There will 
 One of the special opening offers is a fitness test - a complete review of your cardiac fitness and muscle tone, actually done in the shop by qualified staff. **This would normally cost £30.00 but is available at half price for this month only. There are only a limited number of places available for this, so to make a booking** phone 560341. In addition, if you open an account you get lots more special offers including the chance to try out equipment at special open evenings...  
   
 ### SECTION 3  
-A
+TEACHERS: Before we start, Spiros and Hiroko, thanks for coming in today to talk about your recent study experiences and congratulations to you both in doing so well in your first semester exams! I'd like to discuss with you the value of the English for Academic Purposes course you did here last year before starting your university course. Spiros, if I coud start with you, what parts of the programme have now proved to be particularly valuable to you?  
+SPIROS: 
 
