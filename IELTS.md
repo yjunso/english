@@ -70,6 +70,7 @@ I was invited to a special preview and I can promise you, this is the ultimate i
 The Shop will be open from 09:00 am this Saturday and if you go along to the opening then you'll have the chance to meet the national 400 metres running champion Paul King, who's coming along to open the shop, and **he will be staying around until about midday** to chat to any fans who want to meet him and sign autographs.  
 Then there will be a whole range of special attractions all weekend. There will be free tickets for local sporting events for the first 50 customers, and also a special competiton open to all. Just answer fifteen out of twenty sports questions correctly to win a signed copy of Paul King's DVD 'Spring Tips', while **the first person to get all the questions correct gets a year's free membership of the Bradcaster Gym.** All entrants will receive a special Sports calendar with details of all Bradcaster fixtures in the coming year.  
 One of the special opening offers is a fitness test - a complete review of your cardiac fitness and muscle tone, actually done in the shop by qualified staff. **This would normally cost £30.00 but is available at half price for this month only. There are only a limited number of places available for this, so to make a booking** phone 560341. In addition, if you open an account you get lots more special offers including the chance to try out equipment at special open evenings...  
-
-
+  
+### SECTION 3  
+A
 
