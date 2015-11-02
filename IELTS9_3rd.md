@@ -13,4 +13,11 @@ SPIROS: That's great, Hiroko! I hope that happens for me next semester - I'll ha
 HIROKO: I think that one thing that helped me with this was the reading. I've had to do so much reading this semester just to help me make sense of the lectures. At first I couldn't understand what the lecturers were talking about, **so I had to turn to the books and journals**. Every night I read for hours, using the lists of references that were given, and I made pages of notes. At breakfast, I read and read my notes again. This habit has helped me to follow the ideas in the lectures, and it's also given me some ideas to use in the tutorials.  
 SPIROS: But I did so much reading anyway - I don't think there's any time left over for anything extra. **My reading speed is still quite slow.** though I'm much better at dealing with vocabulary than I used to be.  
 TEACHER: What else do you think we could add to the course program to help with this reading problem?  
-SPIROS: There's not really anything because it's my problem. I remember we were given long articles to read. We didn't like that much
+SPIROS: There's not really anything because it's my problem. I remember we were given long articles to read. We didn't like that but now I realise that reading those long articles was good preparation for the things I need to read now. Also, in class we regularly had speed-reading tasks to do, and we kept a record of our reading speed, so the teachers were encouraging us to work on that.  
+HIROKO: That's  true Spiros, but what we read could have been different.  
+Sometimes in the English class I felt frustrated when I had to read articles about the environment or health or education, because **I wanted to concentrate on my own field, but we didn't read anything about engineering,** So, I think I wasted some time learning vocabulary I didn't need.  
+TEACHER: But surely the strategies you were taught for dealing with that vocabulary were helpful.  
+HIROKO: Yes, but psychologically speaking, **I would have felt much better working on reading from my own field.** What do you think Spiros?  
+SPIROS: I agree;that would have helped my confidence too and I would have been more motivated. It was good though that we could work on our own topics when we wrote the research assignments.  
+TEACHER: Okay, let's move on to writing now ...  
+
