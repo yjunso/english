@@ -1,4 +1,6 @@
 ### SECTION 3  
 TEACHERS: Before we start, Spiros and Hiroko, thanks for coming in today to talk about your recent study experiences and congratulations to you both in doing so well in your first semester exams! I'd like to discuss with you the value of the English for Academic Purposes course you did here last year before starting your university course. Spiros, if I coud start with you, what parts of the programme have now proved to be particularly valuable to you?  
 SPIROS: I think that having to do a semester presentation really helped me. For example, a couple of weeks ago in our marketing subject, when it was my turn to give a presentation I felt quite confident. Of course, I was still nervous but because I had done one before, I knew what to expect. Also, I know I was well-prepared and I had practised my timing. In fact, I think that in relation to some of the other people in my group. I did quite a good job because **my overall style was quite professional**. What about you, Hiroko?  
-HIROKO: Mmm, that's interesting. In my group, 
+HIROKO: Mmm, that's interesting. In my group, I was really surprised by the way the students did their presentations - they just read their notes aloud! Can you believe that? **They didn't worry about their presentation style or keeping eye contact with their audience** - and I remember that these things were really stressed to us in the course here.  
+TEACHER: So, how did you approach your presentation, Hiroko?  
+HIROKO: Well, to speak frankly, 
