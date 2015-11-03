@@ -9,4 +9,9 @@ JUN: Yes, but I think the student would be much happier keeping the existing set
 PAM: It's not so much ther expense that I'm worried about, and we've certainly got room to do it, but **it's the problem of timetabling a teacher to be in there outside class hours**. If we're goint to spend a lot of money on equipment and resources, we really need to make sure that everything is looked after properly. Anyway, let's make some notes to see just what needs doing to improve the Centre.  
 Now, what about the computers? I think it might be a good idea to install some new models. They would take up a lot less room and so that would increase the work space for text books and so on.  
 JUN: That would be great. it is a bit cramped in there at times.  
+PAM: What about other resources? Do you have a list of things that the students would like to see improved?  
+JUN: Yes, one of the comments that students frequently make is that **they find it difficult to find materials that are appropriate for their level, especially reading resources**, so I think we need to label them more clearly.  
+PAM: Well that's easy enough, we can get that organised very quickly. In fact I think we should review all of the study resources as some of them are looking a bit out-of-date.  
+JUN: Definitely. **The CD section especially needs to be more current**. I think we should get some of the ones that go with our latest course books and also make multiple copies.  
+PAM: Good, 
 
