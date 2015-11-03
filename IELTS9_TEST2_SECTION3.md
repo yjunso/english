@@ -13,5 +13,11 @@ PAM: What about other resources? Do you have a list of things that the students 
 JUN: Yes, one of the comments that students frequently make is that **they find it difficult to find materials that are appropriate for their level, especially reading resources**, so I think we need to label them more clearly.  
 PAM: Well that's easy enough, we can get that organised very quickly. In fact I think we should review all of the study resources as some of them are looking a bit out-of-date.  
 JUN: Definitely. **The CD section especially needs to be more current**. I think we should get some of the ones that go with our latest course books and also make multiple copies.  
-PAM: Good, 
+PAM: Good, now I was also thinking about some different materials that we haven't got in there at all. What do you think of **the idea of introducing some workbooks? If we break them up into separate pages and laminate them, they'd be a great resource**. The students could study the main course book in class and then do follow-up practice in the Self-Access Centre.  
+JUN: That sounds good.  
+PAM: Okay, now finally we need to think about how the room is used. I'll have to **talk to the teachers and make sure we can all reach some agreement on a timetable to supervise the centre after class.** But we also need to think about security, too. Especially if we're going to invest in some new equipment.  
+JUN: **What about putting in an alarm?**  
+PAM: Good idea. The other thing I'd like to do is talk to our technicians and see whether we could somehow **limit the access to email**. I really don't want to see that resource misused.  
+JUN: What about if we agree to only use it before and after class?  
+PAM: Yes, that would be fine. OK, anyway ... that's great for now. We'll discuss it further when we've managed to ...
 
