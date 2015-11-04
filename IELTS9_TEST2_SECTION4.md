@@ -14,4 +14,9 @@ The first type is called the Power Culture, and it's usually found in small orga
 And **the kind of person who does well in this type of business culture is one who is happy to take risks**. and for whom job security is a low priority.  
   
 The next type is known as Role Culture - that's R-O-L-E, not R-O-double L, by the way, and this type is usually found in large companies, which have **lots of different levels** in them.  
-These organisations usually have separate departments that specialise in things like finance, or sales, or maintenance, or whatever. Each one is co-ordinated at the top by a small group of senior managers, and typically everyone's job is controlled by **sets of rules and procedures-for example, there are specific job descriptions**.
+These organisations usually have separate departments that specialise in things like finance, or sales, or maintenance, or whatever. Each one is co-ordinated at the top by a small group of senior managers, and typically everyone's job is controlled by **sets of rules and procedures-for example, there are specific job descriptions**. rules for discipline, and so on.  
+  
+What are the benefits of this kind of culture? Well firstly, because it's found in large organisations, its fixed costs, or overheads as they're known, are low in relation to its output, or what it produces. In other words it can achieve economies of scale. And secondly, **it is particularly successful in business markets where technical expertise is important**. On the other hand, **this culture is often very slow to recognise the need for change**, and even slower to react. What kind of person does this type of culture suit  
+Whell it suits employees who value security, and **who don't particularly want to have responsibility**.  
+  
+Moving on now to Task Cultures - this type is found in organisations that are project oriented. You usually find it where the market for the company's product is extremely competitive, or where the products themselves have a short life-span. Usually top management delegates the projects, the people and other resources. And 
