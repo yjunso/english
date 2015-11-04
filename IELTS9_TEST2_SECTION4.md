@@ -19,4 +19,9 @@ These organisations usually have separate departments that specialise in things 
 What are the benefits of this kind of culture? Well firstly, because it's found in large organisations, its fixed costs, or overheads as they're known, are low in relation to its output, or what it produces. In other words it can achieve economies of scale. And secondly, **it is particularly successful in business markets where technical expertise is important**. On the other hand, **this culture is often very slow to recognise the need for change**, and even slower to react. What kind of person does this type of culture suit  
 Whell it suits employees who value security, and **who don't particularly want to have responsibility**.  
   
-Moving on now to Task Cultures - this type is found in organisations that are project oriented. You usually find it where the market for the company's product is extremely competitive, or where the products themselves have a short life-span. Usually top management delegates the projects, the people and other resources. And 
+Moving on now to Task Cultures - this type is found in organisations that are project oriented. You usually find it where the market for the company's product is extremely competitive, or where the products themselves have a short life-span. Usually top management delegates the projects, the people and other resources. And once these have been allocated, little day-to-day control is exercised from the top, because this would seem like 'breaking the rules'.  
+  
+Now **one of the major benefits of this culture is that it's flexible**. But it does have some major disadvantages too. For instance, it can't produce economies of scale or great depth of expertise. People who like working in groups or teams prefer this type of culture.  
+  
+And finally, the fourth category is called the Person Culture ...  
+
