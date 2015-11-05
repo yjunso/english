@@ -15,4 +15,5 @@ At the time, quinine was the only viable medical treatment for malaria. The drug
   
 During his vacation in 1856, Perkin spent his time in the laboratory on the top floor of his family's house. He was attempting to manufacture quinine from aniline, an inexpensive and readily available coal tar waste product. Despite his best efforts, however, he did not end up with quinine. Instead, he produced a myterious dark sludge. Luckily, Perkin's scientific training and nature prompted him to investigate the substance further.   
 Incorporating potassium dichromate and alcohol into the aniline at various stages of the experimental process, he finally produced a deep purple solution. And, proving the truth of the famous scientist Louis Pasteur's words 'chance favours only the prepared mind', Perkins saw the potential of his unexpected find.  
-
+  
+Historically, textile dyes were made from such natural sources as plants and animal excretions. Some of these, such as the glandular mucus of snails, were difficult to obtain and outrageously expensive. Indeed, the purple colour extracted from a snail was once so costly that in society at the time only the rich could afford it.
